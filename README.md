@@ -8,7 +8,7 @@
 
 
 
-(![image](https://github.com/user-attachments/assets/da5e80e0-f291-49a0-95b6-1aad5322f646)
+(![image](https://github.com/Thiago1347/app_troco/blob/main/img/qrcode_thiago1347.github.io.png)
 
 
 
