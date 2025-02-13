@@ -1,3 +1,14 @@
-[QR Code](![image](https://github.com/user-attachments/assets/bab9aa48-3a58-4c81-b8c5-08126f538fd6)
+[QR Code]
+
+
+
+
+
+
+
+
+
+(![image](https://github.com/user-attachments/assets/da5e80e0-f291-49a0-95b6-1aad5322f646)
+
 
 
